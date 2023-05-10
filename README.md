@@ -9,4 +9,14 @@ go on microsoft egge
 AND NO GOOGLE CROME
 
 
+BY VLAD 
+
+day7s1204@gmail.com
+22ilkunvl@olympustrust.co.uk
+
+
+POWER BY ME.COM 
+
+
+
 
